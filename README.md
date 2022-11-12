@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @julfequar
-- 👀 I’m interested in ...hanif
-- 🌱 I’m currently learning ... hittaha
+- 👋 Hi, I’m @jH'
+- 👀 I’m interested in ...alifzlh!
+- 🌱 I’m currently learning ... ha'
 - 💞️ I’m looking to collaborate on ... love
 - 📫 How to reach me ... telepathy
 
